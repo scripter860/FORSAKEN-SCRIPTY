@@ -1,1 +1,4 @@
 # FORSAKEN-SCRIPTY
+
+![17590002091394533519334947575392](https://github.com/user-attachments/assets/6d6079cb-f670-48c4-8128-5af57bedef96)
+The Best FORSAKEN HUB SCRIPT Out There rn. "IN TESTING"
